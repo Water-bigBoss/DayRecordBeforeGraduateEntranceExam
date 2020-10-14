@@ -1,0 +1,2 @@
+# DayRecordBeforeGraduateEntranceExam
+记录考研前的每一天（反划水用
